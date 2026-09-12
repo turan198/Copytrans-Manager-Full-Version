@@ -1,0 +1,1 @@
+# Copytrans-Manager-Full-Version
